@@ -11,4 +11,4 @@ Fact about me!:
 - 📫 Instagram: [pearrw](https://www.instagram.com/pearrw?igsh=aDJhajRvbG5jbzRq&utm_source=qr)
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: 23-year-old girl who likes art/drawing/painting!
-
+- Previous university: Mahidol University
