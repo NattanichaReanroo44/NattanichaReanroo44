@@ -12,3 +12,4 @@ Fact about me!:
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: 23-year-old girl who likes art/drawing/painting!
 - Previous university: Mahidol University
+- Tel: xxxxxxxxxxx
