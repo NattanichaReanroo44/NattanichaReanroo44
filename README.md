@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 
-**Nattaicha Reanroo** is a ✨ statistics student ✨. You can call me **Pear** (it is my nickname)
+**Nattaicha Reanro** is a ✨ statistics student ✨. You can call me **Pear** (it is my nickname)
 
 Fact about me!:
 
