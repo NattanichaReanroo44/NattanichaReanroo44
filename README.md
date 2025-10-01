@@ -13,5 +13,6 @@ Fact about me!:
 - ⚡ Fun fact: 23-year-old girl who likes art/drawing/painting!
 - Previous university: Mahidol University
 - Tel: xxxxxxxxxxx
+- Hi there
 ------
 Last update: 31 Sep 2025
